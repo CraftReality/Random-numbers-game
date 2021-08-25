@@ -1,5 +1,5 @@
 =====================================================
-In this game all you need to do is just pick upa random number.|
+In this game all you need to do is just pick up a random number.|
 =====================================================
 
 ////////////////////////////////////////////////////////////
